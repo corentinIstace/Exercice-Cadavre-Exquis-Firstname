@@ -6,4 +6,5 @@ Un jour que son maitre jouait avec de la **dynamite**, celui -ci ne trouva rien 
 le vent se leva,
 une bourasque démentielle s'abatit proche du maitre et son chien,
 par chance celà eteignit la mêche.
+
 ## FIN
