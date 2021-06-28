@@ -13,3 +13,9 @@ pas de chance pour eux, cette orage entrèna la foudre.
 la foudre qui elle alluma la mèche.  
 
 ## FIN
+
+C’est le vent d’Ouest qui fait le songe à la mer
+C’est le vent d’Ouest qui fait le songe au sommeil
+
+Et c’est le vent d’Est qui fait le jour à la nuit
+Et c’est le vent d’Est qui fait le jour à la vie
