@@ -19,3 +19,8 @@ C’est le vent d’Ouest qui fait le songe au sommeil
 
 Et c’est le vent d’Est qui fait le jour à la nuit
 Et c’est le vent d’Est qui fait le jour à la vie
+  
+le vent de l Est et l Ouest etait déchainé se soir la!! 
+et le vague elle, etait incontrolable !!  
+le chien et son maitre se sont fait happés et entrainés dans l ocean...  
+
