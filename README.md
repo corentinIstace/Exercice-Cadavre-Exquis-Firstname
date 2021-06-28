@@ -8,3 +8,9 @@ une bourasque démentielle s'abatit proche du maitre et son chien,
 par chance celà eteignit la mêche.
 
 ## FIN
+
+C’est le vent d’Ouest qui fait le songe à la mer
+C’est le vent d’Ouest qui fait le songe au sommeil
+
+Et c’est le vent d’Est qui fait le jour à la nuit
+Et c’est le vent d’Est qui fait le jour à la vie
